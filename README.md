@@ -20,33 +20,22 @@ every note declares:
 **Hallelujah forever!**
 
 Albums Included (18 Songs – Exact Titles)
-
 Album 1 – The First Trumpet Sounds
-பரலோகம் திறந்திருப்பதைப் பார்த்தேன் – I Saw Heaven Opened
 
-வாருங்கள்! வாருங்கள்! – Arise, O Come
-
-வருகிறாரே வருகிறாரே – He Comes, He Comes
-
-ஆதியிலே படைத்தார் – In the Beginning He Created
-
-திறப்பின் வாசலில் நிற்போமா? – Shall We Stand in the Gap?
-
-கனி கொடுத்திடப்பா – Bear Fruit, O Bear Fruit
-
+1. பரலோகம் திறந்திருப்பதைப் பார்த்தேன் – I Saw Heaven Opened
+2. வாருங்கள்! வாருங்கள்! – Arise, O Come
+3. வருகிறாரே வருகிறாரே – He Comes, He Comes
+4. ஆதியிலே படைத்தார் – In the Beginning He Created
+5. திறப்பின் வாசலில் நிற்போமா? – Shall We Stand in the Gap?
+6. கனி கொடுத்திடப்பா – Bear Fruit, O Bear Fruit
 
 Album 2 – The Oil of Gladness Anointing
 7. சீனாய் மலையில் மோசே ஏறி – Moses Climbed Mount Sinai
-
 8. சிட்டுக்குருவி போல நான் சிலிர்த்தது உண்டு – Like a Little Sparrow I Have Thrilled
-9. 
-10. ஒரு கேள்வி கேட்கட்டுமா? – May I Ask You a Question?
-11. 
-12. பிரியமான ஜனமே – Beloved People
-13. 
-14. வஞ்சித்தான் – He Deceived
-15. 
-16. ஆராதனை இயேசுவுக்கு – Worship to Jesus
+9. ஒரு கேள்வி கேட்கட்டுமா? – May I Ask You a Question?
+10. பிரியமான ஜனமே – Beloved People
+11. வஞ்சித்தான் – He Deceived
+12. ஆராதனை இயேசுவுக்கு – Worship to Jesus
 
 Album 3 – The Morning Star Rising
 13. விசுவாச பரீட்சை – The Test of Faith
