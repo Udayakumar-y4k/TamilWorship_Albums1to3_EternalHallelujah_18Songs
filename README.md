@@ -50,7 +50,7 @@ Album 3 – The Morning Star Rising
 - Full lyrics book (Tamil + English):  
   EternalHallelujah_Albums1to3_18Songs_FullLyrics_TamilEnglish.pdf
 
-  - 18 Songs collection (Tamil + English):  
+- 18 Songs collection (Tamil + English):  
   EternalHallelujah_Albums1to3_18Songs.mp4
 
 - Main collection cover artwork:  
