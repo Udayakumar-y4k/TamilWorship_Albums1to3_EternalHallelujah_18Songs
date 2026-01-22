@@ -29,7 +29,7 @@ Album 1 – The First Trumpet Sounds
 5. திறப்பின் வாசலில் நிற்போமா? – Shall We Stand in the Gap?
 6. கனி கொடுத்திடப்பா – Bear Fruit, O Bear Fruit
 
-Album 2 – The Oil of Gladness Anointing
+Album 2 – The Oil of Gladness Anointing 
 7. சீனாய் மலையில் மோசே ஏறி – Moses Climbed Mount Sinai
 8. சிட்டுக்குருவி போல நான் சிலிர்த்தது உண்டு – Like a Little Sparrow I Have Thrilled
 9. ஒரு கேள்வி கேட்கட்டுமா? – May I Ask You a Question?
