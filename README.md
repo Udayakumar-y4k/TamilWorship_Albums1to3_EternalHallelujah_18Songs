@@ -53,9 +53,6 @@ Album 3 – The Morning Star Rising
 - Main collection cover artwork:  
   EternalHallelujah_Albums1to3_Cover.jpg
 
-- Individual album folders:  
-  Each contains album cover + full lyrics PDF for that album
-
 ### Download & Share Freely
 
 All songs and lyrics are offered freely — no copyright restrictions.  
